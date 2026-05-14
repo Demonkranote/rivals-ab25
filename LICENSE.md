@@ -1,4 +1,4 @@
-
+Download rivals premium Scripts for rivals, the best script available, featuring teleport and auto-upgrade. This powerful tool ensures you have the upper hand in every match,
 
 
 
